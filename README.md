@@ -1,1 +1,1 @@
-# Lab1-Jisya RIvas
+# Lab1-Jisya Rivas
