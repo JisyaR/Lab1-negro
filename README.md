@@ -1,1 +1,1 @@
-# Lab1-negro
+# Lab1-Jisya RIvas
